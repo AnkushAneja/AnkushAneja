@@ -18,5 +18,5 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on industry level Projects.
 - 🤔 I’m looking for help with Internship / Job opportunities.
 - 💬 Ask me about Data Science as thats what defines me.
-- 📫 How to reach me: https://www.linkedin.com/in/ankush-aneja-589431182/ 
+- 📫 How to reach me: https://60bc86cbe4bd3.site123.me/ 
 - ⚡ Fun fact: In love with Datasets and Laptop 😂
